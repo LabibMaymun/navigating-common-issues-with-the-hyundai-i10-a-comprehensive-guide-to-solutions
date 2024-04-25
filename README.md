@@ -1,4 +1,4 @@
-#Navigating Common Issues with the Hyundai i10 A Comprehensive Guide to Solutions
+# Navigating Common Issues with the Hyundai i10 A Comprehensive Guide to Solutions
 
 ![Navigating Common Issues with the Hyundai i10 A Comprehensive Guide to Solutions](https://hackmd.io/_uploads/BkHliZBWC.png)
 
