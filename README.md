@@ -1,3 +1,5 @@
+#Navigating Common Issues with the Hyundai i10 A Comprehensive Guide to Solutions
+
 ![Navigating Common Issues with the Hyundai i10 A Comprehensive Guide to Solutions](https://hackmd.io/_uploads/BkHliZBWC.png)
 
 The Hyundai i10 stands as a testament to Hyundai's commitment to delivering reliable, efficient, and stylish city cars. As a popular choice among urban drivers worldwide, the Hyundai i10 offers a blend of affordability, practicality, and modern features. However, like any vehicle, the Hyundai i10 is not without its share of common issues that owners may encounter. 
